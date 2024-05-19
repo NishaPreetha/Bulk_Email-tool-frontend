@@ -1,0 +1,1 @@
+Introducing our Bulk Email Tool! It's crafted to streamline the task of sending emails to numerous recipients with ease. Whether you're a marketer, recruiter, or simply managing a substantial contact list, this tool is your go-to for efficient email campaigns.
